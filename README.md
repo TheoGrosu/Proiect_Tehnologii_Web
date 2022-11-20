@@ -1,0 +1,1 @@
+# Proiect-Tehnologii-Web-Aplica-ie-Web-pentru-a-preveni-risipa-de-alimente
